@@ -8,8 +8,8 @@ My name is Faruq Rahmadani this is my personal website showcasing my professiona
 
 ## Contact Information
 
-## Expeciences/Projects
+## Experiences/Projects
 
-## Educational Barckground
+## Educational Background
 
 ## Hobbies 
